@@ -1,7 +1,7 @@
 ![1000028833](https://github.com/user-attachments/assets/d62acd79-197c-4d90-ab41-32b787b4edda)
  gσт υя нєαят ιη α нєα∂ℓσ¢к ![1000028834](https://github.com/user-attachments/assets/6734479a-fa87-4eca-a761-fe5d16b55c81)
 
-ALWAYS non verbal if u wanna int directly whisper me!
+ALWAYS non verbal if u wanna int directly whisper me! (unless im in a very good mood which is rarely, always chose not to, unless if oomf with me im talkative at times, but my socializing battery have it limits.)
 
 ღ . HELLO!! HIHII!! im 𝐌𝐞𝐢-𝐋𝐮𝐦𝐢𝐚𝐧𝐠 u can call me 𝐌𝐞𝐢𝐥𝐮 or 𝐖𝐮𝐱𝐢!! . BISEXUAL [] xe/xem pronoun pls . . ![1000028839](https://github.com/user-attachments/assets/b6f43022-0bc0-4b06-81f0-0475b7c69d17)
  more nicknames in my pronouns page!! 
