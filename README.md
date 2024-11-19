@@ -3,6 +3,8 @@
 
 ALWAYS non verbal if u wanna int directly whisper me! (unless im in a very good mood which is rarely, always chose not to, unless if oomf with me im talkative at times, but my socializing battery have it limits.)
 
+i act depend on how u treat me
+
 ღ . HELLO!! HIHII!! im 𝐌𝐞𝐢-𝐋𝐮𝐦𝐢𝐚𝐧𝐠 u can call me 𝐌𝐞𝐢𝐥𝐮 or 𝐖𝐮𝐱𝐢!! . BISEXUAL [] xe/xem pronoun pls . . ![1000028839](https://github.com/user-attachments/assets/b6f43022-0bc0-4b06-81f0-0475b7c69d17)
  more nicknames in my pronouns page!! 
 
